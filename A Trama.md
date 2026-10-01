@@ -1,0 +1,16 @@
+ㅤㅤㅤㅤㅤㅤㅤ☀️⋆.˚ 🕸️ ˚.⋆ 𝙏𝙃𝙀 𝘾𝙃𝘼𝙄𝙉 𝙊𝙁 𝙍𝙀𝘼𝙇𝙄𝙏𝙔.ᐟ
+ㅤㅤㅤ
+ㅤㅤㅤ
+ㅤㅤㅤ𝕬 primeira coisa que todo Catador ensina a uma criança recém-encontrada é que o mundo tem um pulso — não de metáfora, mas real, contínuo, que atravessa pedra, água, sangue e vento sem pedir licença. Os bruxos chamam esse pulso de 𝔗𝔯𝔞𝔪𝔞, e é sobre ela, mais do que sobre qualquer Fonte específica, que se ergue tudo o que existe no 𝕄𝕦𝕟𝕕𝕠 ℙ𝕣𝕠𝕗𝕦𝕟𝕕𝕠. Se as Sete Fontes são comportas, a 𝔗𝔯𝔞𝔪𝔞 é a água que elas represam: nenhuma comporta cria água; apenas decide por onde ela sai.
+ㅤㅤㅤ
+ㅤㅤㅤ𝕯escrever algo sem superfície é sempre difícil, e por isso, ao longo de gerações, três metáforas se firmaram entre os bruxos: a canção, o rio e o fio. Nenhuma está errada; nenhuma, sozinha, é completa. Cada Fonte, cada Ordem, escolhe a que lhe soa mais familiar, sem que isso torne as outras duas enganadas.
+ㅤㅤㅤ
+ㅤㅤㅤ𝕬 canção é a mais antiga das três — o próprio mito de origem já a carrega ("no começo, havia uma só canção"). Descrevê-la assim é falar de um som de fundo que a maioria filtra sem o 𝔇𝔬, do mesmo jeito que se filtra o zumbido de uma geladeira. Filhos da Maré e Verdejantes de ouvido fino ouvem nela um coro em sete vozes; um Heliomante, dizem os registros da 𝐎𝐫𝐝𝐞𝐦 𝐝𝐨 𝐀𝐥𝐯𝐨𝐫𝐞𝐜𝐞𝐫, a ouve inteira e clara uma única vez na vida: no instante do próprio 𝔅𝔞𝔱𝔦𝔰𝔪𝔬.
+ㅤㅤㅤ
+ㅤㅤㅤ𝕺 rio explica o que a canção deixa escapar: movimento, direção, correnteza. É a metáfora preferida da 𝐂𝐨𝐧𝐟𝐫𝐚𝐫𝐢𝐚 𝐝𝐨 𝐒𝐮𝐛𝐬𝐨𝐥𝐨 e de 𝐀 𝐂𝐨𝐫𝐫𝐞𝐧𝐭𝐞 — remansos e corredeiras, poços fundos onde a 𝔗𝔯𝔞𝔪𝔞 se acumula (as Nascentes) e trechos rasos onde mal se sente. Um Geomante fala em sedimento depositado; um Filho da Maré simplesmente a sente correr, e sabe para que lado ela puxa.
+ㅤㅤㅤ
+ㅤㅤㅤ𝕺 fio é a imagem mais recente, e a preferida dos 𝕋𝕖𝕔𝕖𝕝õ𝕖𝕤, cujo ofício de costurar o 𝔙é𝔲 só faz sentido dentro dela. Fala de algo que se entrelaça, se puxa, se corta, se remenda — e explica o que as outras duas não explicam bem: que a 𝔗𝔯𝔞𝔪𝔞 pode ser puxada num ponto e sentida em outro, distante, quase na hora, como um Tecelão em Chicago sentindo o eco de um Limiar aberto do outro lado do mundo.
+ㅤㅤㅤ
+ㅤㅤㅤ𝕬 verdade é que canção, rio e fio não competem: são três sentidos tentando descrever o mesmo elefante pela tromba, pela perna e pela orelha. A 𝔗𝔯𝔞𝔪𝔞 soa, corre e se tece ao mesmo tempo porque não é nenhuma dessas coisas — é a condição que as torna possíveis. Não pertence a nenhuma Fonte porque pertence a todas: o material bruto do qual as Sete Fontes talham suas comportas, como sete rios que nascem da mesma chuva. E é ela, não o Código do Véu, quem de fato decide o que é possível: as leis podem proibir um Caminho; só a 𝔗𝔯𝔞𝔪𝔞 decide se ele pode, tecnicamente, existir. 
+
+Curiosidade Inédita: Existe, entre os Filhos da Maré mais velhos, um pequeno teste informal para distinguir uma criança comum de uma criança em vias de Prova, muito antes de qualquer Marca aparecer visível: encostam um copo de água na palma da mão da criança e pedem que ela diga, de olhos fechados, "para que lado" a água quer ir — não fisicamente, mas por instinto. A maioria erra ou ri da pergunta sem sentido. Uma criança que aponta, sem hesitar, uma direção específica e depois a mantém mesmo girando o copo, está, quase sempre, a poucos anos de sentir a Trama pela primeira vez — seja qual for a Fonte que a chame.
